@@ -10,7 +10,6 @@ If you find any translation errors or identify errors.
 
 Feel free to tell me.
 
----
 # Source
 The source is Vratiće se rode E01-E25 1080p WEB-DL x264.Complete (by Perikle)
 
